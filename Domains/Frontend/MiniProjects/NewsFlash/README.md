@@ -1,4 +1,4 @@
-**Contributor:** GayatriVitkarcd
+**Contributor:** GayatriVitkar
 
 📝 Description
 
